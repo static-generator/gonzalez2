@@ -5,7 +5,18 @@
 >San Felipe, Naga city
 >>October 7, 2009
 
+Hobbies:
+>Cycling
+>
+>Basketball
+>
+>Eating
+>
+>Sleeping
+> 
+>Call of Duty
 
+*Social media*
 - [Facebook](https://www.facebook.com/aguilarjiro)
 - [Instagram](https://www.instagram.com/jiro.aguilarr/)
 
