@@ -13,8 +13,7 @@ Hobbies:
 >Eating
 >
 >Sleeping
-> 
->Call of Duty
+
 
 *Social media*
 - [Facebook](https://www.facebook.com/aguilarjiro)
